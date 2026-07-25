@@ -100,7 +100,7 @@ Realizowaliśmy projekty dla firm działających m.in. w branży:
 
 👉 [Copywriting sprzedażowy](https://besquare.pl/copywriting/)
 
-## beSquare Studio
+## beSquare Studio Agencja Marketingowa Łódź
 
 🌐 [https://besquare.pl/](https://besquare.pl/)
 
